@@ -4,6 +4,7 @@ Get helps
 Hi.
 
 CB here. 
-If you are feeling good great. But if you are not I want to help getting back to not worrying about how you feel and help getting back to your life.
+How are you?
+If you are feeling pretty good, then great. But if not, let's help you get past that, at peace and engaged.
 
 
